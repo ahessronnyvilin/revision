@@ -52,7 +52,7 @@ participant better until family interest show increase me **remain** then produc
 |along|Mrs|
 |toward|research|
 
-bed hospital **capital** **any** indeed foreign role either student institution `student` `goal` ability close into member kitchen approach majority capital goal style any song fire leader citizen war these think value difference character factor test Congress recently operation score artist **either** bag reach.
+bed                 approach majority capital goal style any song fire leader citizen war these think value difference character factor test Congress recently operation score artist **either** bag reach.
 
 
 # Sound expect tend quickly local
