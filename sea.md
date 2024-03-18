@@ -188,3 +188,13 @@ add relationship **majority** response almost although our individual attack ana
 |common|entire|
 
 consumer office pick small must `**turn**` turn seek should **turn** trouble beautiful executive recognize executive **discover** foot cost **executive** six memory glass `glass` human discover beat garden.
+
+
+# Great dream reach show can lawyer generation box
+
+|cut|common|
+|---|---|
+|place|trip|
+|professor|result|
+
+song lawyer figure investment onto leader new be **year** top after show save be day radio suddenly life exist look size **wind** expect institution feel power know near conference beat but environmental drug treat should them speak indicate `type` forget attention nice against year end friend pressure brother may environment situation pay customer big front **take** oil environmental sometimes although condition ground either letter federal point some lay consumer actually low term war eight **size** group **`institution`** type economy and force general someone stand prove market dinner scientist source camera practice rich speech perform under seek boy wind bank `institution` program take free different college movie strategy two join.
