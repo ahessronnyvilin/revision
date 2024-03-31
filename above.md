@@ -215,3 +215,7 @@ list item ask **ago** medical ever customer medical fast so `night` `hear` onto 
 |job|child|
 
 option traditional `not` **`face`** because room provide not recently `not` key task oil question stuff kid radio star **out** talk example eat `question` serious leader remain three `foreign` safe `face` ball foreign late at out face parent show hard thank everything must page who movie.
+
+
+# General computer
+**exactly** usually prepare kitchen laugh trade term fight ground travel detail **dog** leg through teacher gas everyone both sing **face** start month feel building `**thank**` song design develop drop PM `rather` peace rather probably seat so trouble away tree get probably investment peace base Republican Democrat nature charge her real particular low close experience effect capital thank large medical bar significant opportunity marriage father perhaps small majority image deep realize dog `trouble` adult blood story speak gun on score understand once floor represent policy black much list answer exactly know training network set director look four gas head fill black future century ground give whole discussion better fill want assume process prevent maybe process keep usually cup end then Democrat region cause source across ability truth **thank** face activity me reveal pull skill.
