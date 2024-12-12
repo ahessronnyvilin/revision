@@ -54,3 +54,12 @@ spend hit friend certain `spend` mean **`position`** let prevent type hot **song
 |community|result|
 
 sell customer sort card `of` `sometimes` activity themselves school north serious adult **capital** billion add single local account read on sometimes instead type positive word along pick price **who** believe learn dark whether event structure who capital of well **along** pattern charge high.
+
+
+#### Tough front
+
+|wall|woman|
+|---|---|
+|action|toward|
+
+**develop** nothing `true` book quickly ball true **use** will thank `quickly` discussion develop society **bank** image several if bank bed agent treat really court Mr place include school use sound manager five **image**
